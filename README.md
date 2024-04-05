@@ -1,6 +1,6 @@
 - 👋 Ola, meu nome e "Pedro" mas pode me chamar de Kogama.
 - 👀 Meus interesses são: Evoluir na programação e crescer minha vida profissional.
-- 🌱 Estou estudando, más ja tenho umaboa base de conhecimento
+- 🌱 Estou estudando, más ja tenho uma boa base de conhecimento
 - 💞️ Espero ser colaborativo com meus companheros de estudo ou trbalho
 - 📫 Gosto de conhecer mundo tecnológico, celulares, PCs, e etc, gosto muito de video games e assistos alguns anime (Claramente um Nerdão)
 - ⚡ Curiosidades: Meu console favorito e o Sony PSP, meu game favorito não e exatamente dele mas o segundo é kskskk,
